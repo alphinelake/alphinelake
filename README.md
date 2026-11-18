@@ -1,2 +1,1 @@
 <img width="1000" height="413" alt="felixcalspikeshoes" src="https://github.com/user-attachments/assets/d787296b-5a7e-4d08-8ad8-fd5e9bd81924" />
-$\color{red}{\text{17, taken}}$
