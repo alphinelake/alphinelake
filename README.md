@@ -1,4 +1,5 @@
-## ![IMG_4926](https://github.com/user-attachments/assets/a10d2f3e-39af-49b5-98b9-b2b707267416)
+<img width="1000" height="413" alt="felixcalspikeshoes" src="https://github.com/user-attachments/assets/d787296b-5a7e-4d08-8ad8-fd5e9bd81924" />
+
 16 ; cis Gender Male ( wow ) ;  ZD Enjoyer ; I don’t care if TCC members interact to be honest, I'm chill. 
 
 <!--
