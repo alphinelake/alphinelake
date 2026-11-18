@@ -1,8 +1,4 @@
 <img width="1000" height="413" alt="felixcalspikeshoes" src="https://github.com/user-attachments/assets/d787296b-5a7e-4d08-8ad8-fd5e9bd81924" />
-
-16 ; cis Gender Male ( wow ) ;  ZD Enjoyer ; I don’t care if TCC members interact to be honest, I'm chill. 
-
-<!--
 **kriegnation/kriegnation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
